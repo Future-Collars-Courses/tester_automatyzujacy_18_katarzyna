@@ -1,0 +1,1 @@
+# tester_automatyzujacy_18_katarzyna
